@@ -11,7 +11,7 @@ You may be using [Spotify Your Idol](https://open.spotify.com/track/1I37Zz2g3hk9
 _Não só essa, mas muitas outras, eu gosto dessa por causa da batida_
 
 **Mas meu gosto musical é kpop, principalmente Blackpink**  
-__Cada um com seu gosto musical, mas espero que gostem da música que mencionei__
+__Cada um com seu gosto musical, mas espero que gostem da música que mencionei ❤️💕__
 
 
 <!--
