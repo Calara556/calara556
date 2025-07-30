@@ -2,7 +2,8 @@
 
 You may be using [Instagram Calara](https://www.instagram.com/calara_556?igsh=Mmo1djlwczk5NGho).
 
-https://open.spotify.com/track/1I37Zz2g3hk9eWxaNkj031?si=6zP3A-WgQAu7sByt8ZCIKg
+You may be using [Spotify Your Idol](https://open.spotify.com/track/1I37Zz2g3hk9eWxaNkj031?si=6zP3A-WgQAu7sByt8ZCIKg).
+
 ## Hi there 👋
 
 <!--
